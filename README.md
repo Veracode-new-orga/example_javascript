@@ -4,7 +4,6 @@ c
 fcg 
 dgf 
 gg   
-bjh     
-bjb  
+
 xfc  
  
